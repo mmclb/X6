@@ -23,4 +23,4 @@ X6网址发布<br>
 <br>
 <a href="https://www.lanzous.com/b04a4bp3i" style="text-decoration: none;">蓝奏云</a>
 <br>
-<a href="https://pan.baidu.com/s/10kj7o8e3csuTA0W1V7KAwA" style="text-decoration: none;">百度网盘</a>提取码： </font> <font color="orange">38h2
+<a href="https://pan.baidu.com/s/10kj7o8e3csuTA0W1V7KAwA" style="text-decoration: none;">百度网盘</a>提取码：  <font color="orange">38h2
