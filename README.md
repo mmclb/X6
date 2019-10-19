@@ -2,12 +2,13 @@ X6网址发布<br>
 <a href="https://support.qq.com/embed/phone/93346" style="text-decoration: none;">X6反馈</a>
 <br>
 备用
+<a href="https://url.cn/56gKHpl" style="text-decoration: none;">X6应用市场电脑站</a>
 <br>
 <a href="https://url.cn/56kN3Td" style="text-decoration: none;">X6博客</a>
 <br>
 <a href="https://url.cn/5el0LNp" style="text-decoration: none;">X6博客</a>
 <br>
-<a href="https://url.cn/5K9yB9A" style="text-decoration: none;">X6应用商店</a>
+<a href="https://url.cn/5K9yB9A" style="text-decoration: none;">X6应用市场</a>
 <br>
 <a href="http://bbs.clby.firadio.net/" style="text-decoration: none;">X6论坛</a>
 <br>
