@@ -9,9 +9,7 @@ X6网址发布<br>
 <br>
 <a href="https://url.cn/5K9yB9A" style="text-decoration: none;">X6寒班应用市场</a>
 <br>
-<a href="http://bbs.clby.firadio.net/" style="text-decoration: none;">X6论坛</a>
-<br>
-<a href="https://url.cn/5P0Wz8b" style="text-decoration: none;">X6论坛</a>
+<a href="http://3475272270.clby.firadio.net/" style="text-decoration: none;">X6寒班应用市场电脑版</a>
 <br>
 个人
 <br>
@@ -24,3 +22,9 @@ X6网址发布<br>
 <a href="https://www.lanzous.com/b04a4bp3i" style="text-decoration: none;">蓝奏云</a>
 <br>
 <a href="https://pan.baidu.com/s/10kj7o8e3csuTA0W1V7KAwA" style="text-decoration: none;">百度网盘</a>提取码：  <font color="orange">38h2
+<br>
+<a href="http://wp.clby.firadio.net/index.php?explorer" style="text-decoration: none;">X6云</a>
+<br>
+桌面
+<br>
+<a href="http://wp.clby.firadio.net/index.php?desktop" style="text-decoration: none;">X6云</a>
