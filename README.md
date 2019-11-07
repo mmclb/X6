@@ -9,8 +9,6 @@ X6网址发布<br>
 <br>
 <a href="https://url.cn/5K9yB9A" style="text-decoration: none;">X6寒班应用市场</a>
 <br>
-<a href="http://3475272270.clby.firadio.net/" style="text-decoration: none;">X6寒班应用市场电脑版</a>
-<br>
 个人
 <br>
 <a href="http://javayingyongshangdian.lofter.com" style="text-decoration: none;">LOFTER</a>
