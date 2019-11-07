@@ -5,7 +5,7 @@ X6网址发布<br>
 <br>
 <a href="http://url.cn/5SPayXf" style="text-decoration: none;">X6论坛</a>
 <br>
-<a href="#https://url.cn/5el0LNp" style="text-decoration: none;">X6博客（敬请期待......）</a>
+<a href="http://url.cn/5zVA8ns" style="text-decoration: none;">X6博客</a>
 <br>
 <a href="https://url.cn/5K9yB9A" style="text-decoration: none;">X6寒班应用市场</a>
 <br>
