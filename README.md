@@ -1,13 +1,9 @@
 X6网址发布<br>
-<a href="https://support.qq.com/embed/phone/93346" style="text-decoration: none;">X6反馈</a>
-<br>
 备用
 <br>
 <a href="http://url.cn/5SPayXf" style="text-decoration: none;">X6论坛</a>
 <br>
-<a href="http://url.cn/5zVA8ns" style="text-decoration: none;">X6博客</a>
-<br>
-<a href="https://url.cn/5K9yB9A" style="text-decoration: none;">X6寒班应用市场</a>
+<a href="https://url.cn/5K9yB9A" style="text-decoration: none;">X6寒班应用商店</a>
 <br>
 个人
 <br>
