@@ -1,7 +1,7 @@
 X6网址发布<br>
 备用
 <br>
-<a href="http://url.cn/5SPayXf" style="text-decoration: none;">X6论坛</a>
+<a href="http://url.cn/55dTRFV" style="text-decoration: none;">X6寒班之家</a>
 <br>
 <a href="https://url.cn/5K9yB9A" style="text-decoration: none;">X6寒班应用商店</a>
 <br>
